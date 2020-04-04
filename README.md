@@ -1,0 +1,1 @@
+Este curso está sendo muito interessante, além das aulas teóricas, tem essa parte prática que ajuda a fixar os conhecimentos e você só aprende quando faz e treina bastante.
